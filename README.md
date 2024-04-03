@@ -2,7 +2,7 @@
 - 👀 I’m interested in general coding stuff
 - 🌱 I’m currently learning HTML
 - 💞️ I’m looking to collaborate on .
-- 📫 How to reach me: ask me on Scratch, Itch.io or Github
+- 📫 How to reach me: ask me on Scratch, Itch.io or Discord (@fm2345_oficial)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: IDK WTF TO PUT HERE
 
